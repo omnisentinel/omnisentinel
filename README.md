@@ -10,4 +10,3 @@
 omnisentinel/omnisentinel is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-score_9, score_8_up, score_7_up, score_6_up, rating_nsfw, naked, erect cock, source_anime, 8k, masterpiece, 1boy, male focus, full body, child, incubus, skinny, black hair, horns, incubus tail, multicolored red eyes, black pupils, small penis, erection, foreskin, phimosis: 2, moaning, age difference, size difference, anal sex, cowgirl BREAK 1boy, teen, oni, purple skin, oni horns, lithe, penis, erection, testicles, muscular, holding ass, passionate, thrusting deep, dark background, high detail, intricate detail
